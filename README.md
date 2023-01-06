@@ -3,7 +3,109 @@
 的航空，
 
   
-有沒有辦法蜜蜂
+有沒有辦法蜜蜂# repo pkt.1
+i henhold til alle kjente lover
+luftfart,
+
+  
+er det en måte bier
+Skal kunne fly.
+
+  
+vingene er for små
+Dens fete lille kropp løfter seg fra bakken.
+
+  
+bier flyr selvfølgelig uansett
+
+  
+fordi bier ikke bryr seg
+Mennesker trodde det var umulig.
+
+  
+gul, svart. gul, svart.
+gul, svart. gul, svart.
+
+  
+Åh svart og gult!
+La oss riste det opp.
+
+  
+Barry! Frokosten er klar!
+
+  
+Strålende!
+
+  
+Vent et minutt.# repo pkt.1
+i henhold til alle kjente lover
+luftfart,
+
+  
+er det en måte bier
+Skal kunne fly.
+
+  
+vingene er for små
+Dens fete lille kropp løfter seg fra bakken.
+
+  
+bier flyr selvfølgelig uansett
+
+  
+fordi bier ikke bryr seg
+Mennesker trodde det var umulig.
+
+  
+gul, svart. gul, svart.
+gul, svart. gul, svart.
+
+  
+Åh svart og gult!
+La oss riste det opp.
+
+  
+Barry! Frokosten er klar!
+
+  
+Strålende!
+
+  
+Vent et minutt.# repo pkt.1
+i henhold til alle kjente lover
+luftfart,
+
+  
+er det en måte bier
+Skal kunne fly.
+
+  
+vingene er for små
+Dens fete lille kropp løfter seg fra bakken.
+
+  
+bier flyr selvfølgelig uansett
+
+  
+fordi bier ikke bryr seg
+Mennesker trodde det var umulig.
+
+  
+gul, svart. gul, svart.
+gul, svart. gul, svart.
+
+  
+Åh svart og gult!
+La oss riste det opp.
+
+  
+Barry! Frokosten er klar!
+
+  
+Strålende!
+
+  
+Vent et minutt.
 應該能飛。
 
   
